@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @CalvinPlayzXD
+- 👋 Hi, I’m @XqlvinXD!
 - 👀 I’m interested in Minecraft 
-- 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on Content
+- 🌱 I’m currently learning how to gud :)
+- 💞️ I’m looking to collaborate with Content
 Creators!
 
 
